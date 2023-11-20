@@ -1,0 +1,5 @@
+- 👋 Hello, je me nomme Gaël NGAYOU TCHOUPE
+- 👀 Je suis en quête d'un poste en Data Analyse
+- 🌱 Je réalise actuellement des projets Data analyse en pro-bono et je viens de terminer une formation en Data
+- 💞️ Je suis ouvert à l'emploi tout de suite.
+- 📫 Vous pouvez me joindre via mes contacts..
